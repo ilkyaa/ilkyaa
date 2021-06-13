@@ -1,0 +1,3 @@
+- 👋 Salut ! Je suis Médéric "ilkya" Le Moal
+- 👀 J'aime faire des bots discord ...
+- 📫 Comment me contacter : Email : mederic.lemoal08@gmail.com | Twitter : @ilkya2 | Discord : ilkya#6645
