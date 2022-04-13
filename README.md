@@ -1,3 +1,3 @@
 - 👋 Salut ! Je suis ilkya
 - 👀 J'aime faire des bots discord ...
-- 📫 Comment me contacter : Twitter : @ilkya2 | Discord : ilkyawa#6645
+- 📫 Comment me contacter : Twitter : @ilkya2 | Discord : ilkya#5269
